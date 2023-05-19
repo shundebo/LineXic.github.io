@@ -4,9 +4,9 @@
 
 https://linexic.github.io/
 
-火蝾螈服务器网站
+表白用网站
 
-https://linexicgub.nuoi.cn/
+https://linexic.github.io/love.html
 
 火蝾螈服务器往期网站
 
